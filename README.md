@@ -8,3 +8,4 @@ Meu nome é Kauan da Cruz Mello
 
 ## Você entrar em contato comigo 📫
 
+kauan.cruz.mello@escola.pr.gov.br
